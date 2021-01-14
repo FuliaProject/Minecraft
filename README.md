@@ -1,2 +1,2 @@
 # Minecraft
-Mine craft player
+Hoi join discord discord.io/VanillaTeam
